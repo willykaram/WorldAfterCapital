@@ -1,6 +1,6 @@
 # Needs
 
-The definition of scarcity that I just introduced is based on the notion of needs. To argue that there is a shift in scarcity from capital to attention thus requires an agreed up on set of needs. Can we make progress in defining what constitutes a set of basic human needs?
+The definition of scarcity that I just introduced is based on the notion of needs. To argue that there is a shift in scarcity from capital to attention thus requires an agreed upon set of needs. Can we make progress in defining what constitutes a set of basic human needs?
 
 I am not proposing that this is a simple task. What follows should be considered a way of starting a dialog. A list of basic needs is a piece of knowledge. As such it can be improved over time through the process of critical inquiry. You can critique my list by pointing out flaws and you can also propose changes to my list or publish your own list altogether.
 
